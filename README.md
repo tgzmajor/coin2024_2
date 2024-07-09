@@ -7,3 +7,5 @@
 
 # coin2024 新版 VUE版
 https://github.com/zhouyazun/coin2024
+
+购买国外服务器域名免实名+虚拟币USDT支付: [购买链接](https://my.nextcli.com/aff.php?aff=664)
